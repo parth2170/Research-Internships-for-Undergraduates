@@ -31,7 +31,7 @@ The following are some global research internship positions:
 24. [UNSW Civil and Environmental Engineering Research Internship](https://www.engineering.unsw.edu.au/civil-engineering/study-with-us/international-exchange/research-internship-to-unsw-for-international-students)
 25. [OIST Research Internship Program](https://groups.oist.jp/grad/research-interns), Okinawa Institute of Science and Technology(15 Nov)
 26. [SURP, CUHK](http://www.summer.cuhk.edu.hk/surp/)(25 Feb)
-27. [UNiv. of Vienna](https://international.univie.ac.at/en/student-mobility/incoming-students/erasmus-traineeships/?fbclid=IwAR0Ng9I_JqmYrNESSizW7iykuQiH_RE2ByqKuJGJhz_ZsdFXM_cNYHKWwkw)(Separately contact Profs)
+27. [Univ. of Vienna](https://international.univie.ac.at/en/student-mobility/incoming-students/erasmus-traineeships/?fbclid=IwAR0Ng9I_JqmYrNESSizW7iykuQiH_RE2ByqKuJGJhz_ZsdFXM_cNYHKWwkw)(Separately contact Profs)
 
 The following are some research internships for Indian students:
 
